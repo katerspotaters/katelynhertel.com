@@ -1,1 +1,1 @@
-# katelynhertel.com 3
+# katelynhertel.com
